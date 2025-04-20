@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @OscarDodd1
+- 👋 Hi, I’m [@OscarDodd1](https://github.com/OscarDodd1/OscarDodd1)
 - 👀 I’m interested in Dodding it
 - 🌱 I’m currently learning how to Dodd it
-- 💞️ I’m looking to collaborate on Dodding it with @OscarDodd
+- 💞️ I’m looking to collaborate on Dodding it with [@OscarDodd](https://github.com/OscarDodd1/OscarDodd1)
 - 📫 How to reach me - Dodd it
 - 😄 Pronouns: Oscar/Dodd1
 - ⚡ Fun fact: I am Oscar Dodding it
