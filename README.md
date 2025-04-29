@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Dodding it with [@OscarDodd](https://github.com/OscarDodd1/OscarDodd)
 - 📫 How to reach me - Dodd it
 - 😄 Pronouns: Oscar/Dodd1
-- ⚡ Fun fact: I am Oscar Dodding it
+- ⚡ Fun fact: I am Oscar Dodding it so good
 
 <!---
 identity-fraud/identity-fraud is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
